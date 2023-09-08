@@ -1,0 +1,2 @@
+- 👋 Hi, you can find me under `LilaHexe` on most platforms *ahem*
+- 💜 My favourite colour is purple!
